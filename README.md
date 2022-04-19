@@ -1,3 +1,3 @@
 # Premier League Quiz
 
-Answer a few simple questions related to Premier League and.... WIN NOTHING!
+Answer a few simple questions related to the Premier League and.... WIN NOTHING!
